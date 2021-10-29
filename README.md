@@ -3,8 +3,8 @@
 
 Tools INTELIJEN
 
-Link . https://toolretas.blogspot.com/2021/10/search-engine-instagram-database.html?m=1
-Link . https://toolretas.blogspot.com/2021/10/t.html
+Link. https://toolretas.blogspot.com/2021/10/search-engine-instagram-database.html?m=1
+Link. https://toolretas.blogspot.com/2021/10/t.html
 
 perangkat intelijen untuk umum &amp; untuk khusus bisa chat saya melalui akun instagram saya  (@riskiakbar279)
 1.       Pendahuluan
